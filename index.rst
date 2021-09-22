@@ -3,7 +3,7 @@ FREE SPOTIFY PREMIUM ACCOUNTS GENERATOR - NO VERIFICATION (BJCB893HDX)
 ****************************************
 
 
-Quick Access Here>>   https://speedboostpc.com/8ball/
+Quick Access Here>>   https://speedboostpc.com/spotify
 ============
 
 
